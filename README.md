@@ -1,0 +1,1 @@
+# aiSummerCamp2022
